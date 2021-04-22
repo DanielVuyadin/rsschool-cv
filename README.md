@@ -1,1 +1,1 @@
-# rsschool-cv
+https://DanielVuyadin.github.io/rsschool-cv/cv
